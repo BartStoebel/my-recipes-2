@@ -19,6 +19,9 @@ wijziging# Nasi Goreng
 
 ## Preparation
 
+
+wijziging TEst
+
 Bring the rice and water to a boil in a saucepan over high heat. Reduce heat to medium-low, cover, and simmer until the rice is tender, and the liquid has been absorbed, 20 to 25 minutes. Spread onto a baking sheet, and refrigerate 2 hours until cold.
 
 Heat a large nonstick skillet over medium heat. Spray with nonstick cooking spray. Pour eggs into hot skillet. Cook until the eggs begin to set, lifting up the edges of the set eggs to allow the uncooked egg to contact the hot pan, about 1 minute. Flip omelet in one piece and cook until fully set, about 30 seconds. Slice omelet into 1/2 inch strips.
